@@ -10,6 +10,7 @@
 - 🤔 Estou procurando ajuda com a alura
 - 💬 Pergunte-me sobre qualquer coisa,que eu não irei saber(ainda...)
 - 📫 Como entrar em contato comigo: não entre ainda
-- ⚡ Curiosidade: apesar de progamar treino 4x na semana academia,leio e faço jiu jitsu
+- ⚡ Curiosidade: apesar de progamar treino 4x na semana academia e gosto de ler
+- 
 
 
